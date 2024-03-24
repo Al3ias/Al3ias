@@ -14,3 +14,6 @@ Here are some ideas to get you started:
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 -->
+
+![WhatsApp Image 2024-03-24 at 08 53 48_fe6d238c](https://github.com/Al3ias/Al3ias/assets/127734123/a958bc94-3f90-46cb-b398-2a90e099261f)
+
